@@ -5,5 +5,4 @@
 - 🌱 I’m currently learning writing scripts
 
 - 📫 Contant me via Discord Mie#5236
-6
-​
+
